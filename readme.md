@@ -8,7 +8,7 @@
 
 
 ### Full Demo Video 1
-[![Watch the video](pic2.png)](https://youtu.be/del90L83zlo)
+[![Watch the video](pic2.png)](https://ody.sh/265wwWBjEw)
 
 🔍 **Live VirusTotal Results + Usage Guide | Uncut**
 
@@ -17,7 +17,7 @@ This exclusive **uncut video** demonstrates **CrosshairsFUD** achieving **FUD (F
 ---
 
 ### Full Demo Video 2
-[![Watch the video](pic1.png)](https://youtu.be/zRdOXBYL63U)
+[![Watch the video](pic1.png)](https://ody.sh/PXbizYdRp1)
 
 This uncut video showcases **CrosshairsFUD** bypassing the **top 10 antivirus programs**, as well as **Google Play Protect** and **Samsung’s built-in AV**, including:
 
